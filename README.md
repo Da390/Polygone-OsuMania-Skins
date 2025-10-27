@@ -1,2 +1,3 @@
 Thomas Shelby Sigma V2
 ![Image](https://github.com/user-attachments/assets/7e042b4b-8d40-4e95-9a71-11a6c083fe14)
+https://www.mediafire.com/file/tcnd9o4o746ba7r/-_%2523_Thomas_Shelby_Sigma_V2.osk/file
